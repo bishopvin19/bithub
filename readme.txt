@@ -1,1 +1,3 @@
 i love bithub.....
+Learning how to create github account is just a nice step 
+God gelp me during this IT period.
